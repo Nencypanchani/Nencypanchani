@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nencypanchani
 - 👀 I’m interested in learning new things
-- 🌱 I’m currently learning masters in information systems 
+- 🌱 I’m currently learning masters in information systems from Northeastern University, Boston 
 - 💞️ I’m looking to collaborate on LinkedIn 
 - 📫 How to reach me - through LinkedIn I'd - Nency Panchani
 
